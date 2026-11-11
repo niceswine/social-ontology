@@ -11,7 +11,7 @@ abstraktes Konstrukt.
 
 Reference:
 
-Tschördy, Azadeh und Saline (2026): „Macht 1“.
+Tschördy, Azadeh und Saline (2026): „Macht (1)“.
 In: Tschördy, Azadeh und Saline, Jg. 5, Nr. 3,
 Oktober 2026, ISSN 2751-6857, Edition Farangis, S. 116.
 
