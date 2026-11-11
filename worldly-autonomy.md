@@ -8,4 +8,4 @@ An antibiologistische Tiersoziologie begins from the recognition that animals al
 
 Related work:
 
-[Visual Opinions Workshop](https://tierrechtsethik.de/)
+[Visual Opinions Workshop](https://tierrechtsethik.de/](https://tierrechtsethik.de/visual-opinions-workshop/)
