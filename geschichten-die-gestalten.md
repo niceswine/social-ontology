@@ -21,7 +21,7 @@ Denken, das den Weg für jede Herrschaft bahnt.
 Reference:
 
 In: Tschördy, Azadeh und Saline, Jg. 5, Nr. 3,
-Oktober 2026, ISSN 2751-6857, Edition Farangis, S. 196.
+Oktober 2026, ISSN 2751-6857, Edition Farangis, S. 253.
 
 Related work:
 
